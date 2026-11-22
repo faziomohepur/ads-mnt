@@ -1,1 +1,0 @@
-" dvdl mi?n tƒy" 
